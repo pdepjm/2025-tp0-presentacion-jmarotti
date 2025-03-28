@@ -6,4 +6,5 @@ Actualmente me encuentro cursando todas las materias del segundo año, excepto p
 Me gusta la programacion, por lo que me encuentro muy entusiasmado con la materia en este momento.
 ### Legajo: 220.851-9
 ### Foto mia
-![Imagen de WhatsApp 2025-03-27 a las 18 16 28_5439f39a](https://github.com/user-attachments/assets/339b4210-bbac-41f7-a8a4-ed32d5a71840)
+![Imagen de WhatsApp 2025-03-28 a las 18 54 59_732de1e9](https://github.com/user-attachments/assets/46c8faab-9580-43ae-ba8e-afe52c5b3845)
+
